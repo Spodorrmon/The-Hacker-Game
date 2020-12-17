@@ -1,2 +1,3 @@
 # The-Hacker-Game
-lol XD..
+
+here is the game that you could download for testing..now this is not event the first version of the game but we have it open for all you guys to dowload and test...
